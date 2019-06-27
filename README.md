@@ -1,5 +1,5 @@
 # API-XVIDEOS-
-Rent API XVIDEOS 
+Free API XVIDEOS 
 
 Example site: https://filmeleporn.com/
 
