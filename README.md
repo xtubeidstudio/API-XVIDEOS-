@@ -3,7 +3,7 @@ Free API XVIDEOS
 
 Example site: https://filmeleporn.com/
 
-For API XVIDEOS  Contact xtubeidstudio@gmail.com 
+For API XVIDEOS 
 
 Xvideos Iframe / Embeder Plugin Free Version
 
